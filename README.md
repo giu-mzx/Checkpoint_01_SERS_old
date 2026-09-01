@@ -10,6 +10,7 @@ Mikaella Mirela Dos Santos Lucindo - RM 573775
 
 Lara Dos Santos Cândido Alves - RM 573827
 
+Lucas Parkin Devito - RM 573251
 
 ## Descrição da atividade
 
